@@ -186,3 +186,5 @@ Die originale, ungefilterte und unsortierte Liste ist zu finden unter: https://g
 * Sich texas-chainsaw-mäßig einen neimassakren!
 * Sich Johnnymäßig einen neishinen!
 * Sich grimm-mäßig einen hänsel-abartig neigretlen.
+* Sich gitmäßig einen reincommiten!
+* Sich Vadermäßig einen reinforcen!
